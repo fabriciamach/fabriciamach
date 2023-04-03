@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐️Futura desenvolvedora front-end<br>🌱Aprendendo Javascript<br>
+⭐️ Hi, my name is Fabricia, I'm 19 years old, and I'm a Computer Science student at a federal university.<br>
 
 
 ## 🌐 Socials:
