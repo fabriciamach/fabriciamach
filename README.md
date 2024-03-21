@@ -1,5 +1,5 @@
 # 💫 About Me:
-⭐️ Hi, my name is Fabricia, I'm 19 years old, and I'm a Computer Science student at a federal university.<br>
+⭐️ Hi, my name is Fabricia, I'm 20 years old, and I'm a Computer Science student at a federal university.<br>
 
 
 ## 🌐 Socials:
